@@ -1,1 +1,0 @@
-These FLA files are the original FLA's and not the recolored ones
